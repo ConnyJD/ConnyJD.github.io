@@ -4,3 +4,8 @@ Gro√üartiger Musiker: George Michael war der Sohn einer britischen Mutter (1937‚
 
 https://de.wikipedia.org/wiki/George_Michael
 
+## Charakter 
+* gute Laune Musik
+* Soul
+* Dance
+* sozialkritisch
