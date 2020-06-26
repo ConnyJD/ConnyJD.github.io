@@ -9,3 +9,9 @@ https://de.wikipedia.org/wiki/George_Michael
 * Soul
 * Dance
 * sozialkritisch
+
+Ein Songtext-Auszug: 
+> I've had enough of danger 
+> And people on the streets 
+> I'm looking out for angels 
+> Just trying to find some peace
