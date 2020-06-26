@@ -11,7 +11,10 @@ https://de.wikipedia.org/wiki/George_Michael
 * sozialkritisch
 
 Ein Songtext-Auszug: 
-> I've had enough of danger 
-> And people on the streets 
-> I'm looking out for angels 
-> Just trying to find some peace
+> I've had enough of danger    
+> And people on the streets   
+> I'm looking out for angels   
+> Just trying to find some peace  
+
+
+<img src="https://image.shutterstock.com/image-photo/rome-january-29-2019-collection-600w-1309342960.jpg"/>
